@@ -1,0 +1,1 @@
+Make a dough by mixing wheat flour,salt and enough water.Make a small ball out of dough and  flat it in  round shape.Fry it in oil.
